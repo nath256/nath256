@@ -1,6 +1,5 @@
-Oui, c'est bien le vrai @nath256 ! Je suis le créateur du groupe Blue Bird games.
-- Traducteur Français-Anglais / English-French translator
-- Contactez-moi sur Discord / Contact me on Discord : nath256#8390
+Oui, c'est bien le vrai @nath256 ! Je suis le créateur de Blue Bird games.
+Contacte-moi sur Discord / Contact me on Discord : nath256
 
 
 <!---
